@@ -1,4 +1,4 @@
 - 👋 Hi, I’m @diyanagewadia
 - 👀 I’m interested in the human brain, coding, UI/UX design and animal welfare
-- 🌱 I’m currently learning Psychology and data science
+- 🌱 I’m currently learning Psychology and UX design
 - 📫 How to reach me: e-mail - diyanagewadia@gmail.com; Instagram: @diya.xo
